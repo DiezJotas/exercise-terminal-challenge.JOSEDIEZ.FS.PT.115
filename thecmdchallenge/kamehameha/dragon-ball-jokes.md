@@ -25,5 +25,3 @@ What does an elite saiyan warrior need to fix a car? Nappa know how.
 I cut off a monkeys tail and now he's just a vegeta-ble. 
 
 Hey, Vegeta I heard you have a hole in your Trunks. -Cell 
-
-source: http://www.jokes4us.com/peoplejokes/dragonballzjokes.html
